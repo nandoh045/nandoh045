@@ -13,4 +13,8 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--> 
+*colegio arnaldo busatto
+*luiz fernando guedes da silva
+*turma 2c
+*idd 17
